@@ -15,3 +15,29 @@ surtout dans leur destinée que ce qu’ils font.
 M. Myriel était fils d’un conseiller au parlement
 d’Aix ; noblesse de robe. On contait de lui que
 son père, le réservant pour hériter de sa charge,
+l’avait marié de fort bonne heure, à dix-huit ou
+vingt ans, suivant un usage assez répandu dans
+les familles parlementaires.
+
+Charles Myriel,
+nonobstant ce mariage, avait, disait-on, beaucoup
+fait parler de lui. Il était bien fait de sa personne,
+quoique d’assez petite taille, élégant, gracieux,
+spirituel ; toute la première partie de sa vie avait
+été donnée au monde et aux galanteries. La
+révolution survint, les événements se
+précipitèrent, les familles parlementaires
+décimées, chassées, traquées, se dispersèrent.
+M. Charles Myriel, dès les premiers jours de la
+révolution, émigra en Italie1. Sa femme y mourut
+d’une maladie de poitrine dont elle était atteinte
+depuis longtemps. Ils n’avaient point d’enfants.
+Que se passa-t-il ensuite dans la destinée de
+M. Myriel ? L’écroulement de l’ancienne société
+française, la chute de sa propre famille, les
+tragiques spectacles de 93, plus effrayants encore
+peut-être pour les émigrés qui les voyaient de loin
+avec le grossissement de l’épouvante, firent-ils
+germer en lui des idées de renoncement et de
+1 Prêtre réfractaire, Miollis s’exila en Italie de 1793 à 1801.
+
